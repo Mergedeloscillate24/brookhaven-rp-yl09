@@ -1,4 +1,4 @@
-#  
+#  Secure escape tsunami for brainrots scripts is the best escape tsunami for brainrots scripts with invisibility and teleport. Safe, reliable, and optimized for maximum performance.
 
 
 
